@@ -1,1 +1,1 @@
-this is an auto updater for abyss enterprises
+Owner of all Abyss enterprises.
