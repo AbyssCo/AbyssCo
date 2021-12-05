@@ -1,5 +1,1 @@
-Business entrepreneur.
-Manager of several projects. 
-Middle Man.
-Dm for commission.
-Owner of Abyss Enterprise 
+this is an auto updater for abyss enterprises
